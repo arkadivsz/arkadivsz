@@ -1,4 +1,4 @@
-![image](https://github.com/arkadivsz/arkadivsz/assets/159655677/6c72aeb8-e70a-4a7a-9f7a-292f8e1c9898)![image](https://github.com/arkadivsz/arkadivsz/assets/159655677/d9e5946d-ff57-4eee-8697-be6610b2eabd)
+![image](https://github.com/arkadivsz/arkadivsz/assets/159655677/6c72aeb8-e70a-4a7a-9f7a-292f8e1c9898)![image](https://github.com/arkadivsz/arkadivsz/assets/159655677/d9e5946d-ff57-4eee-8697-be6610b2eabd)![image](https://github.com/arkadivsz/arkadivsz/assets/159655677/6c72aeb8-e70a-4a7a-9f7a-292f8e1c9898)
 
 do i have no idea how does this work? probably
 
